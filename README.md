@@ -1,2 +1,2 @@
 This is an assignment that I wanted to do? Nah hahahaha ...
-Stupid things aside... it's Hogwart's data cleaning acc. to what we called, might change later.
+Stupid things aside... it's Hogwart's data cleaning acc. to what we called,Nn might change later.
